@@ -2,7 +2,7 @@
 
 :computer: **Ingeniero Industrial especialista en Gerencia de Productividad e Innovación**
 :pencil: **Analista de datos**
-:oncoming_automobile: **Fan de los autos**
+
 
 ### vías de contacto 
 
